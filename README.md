@@ -1,1 +1,1 @@
-# take-your-time
+"You are the sum total of everything you've ever seen, heard, eaten, smelled, been told, forgot - it's all there. Everything influences each of us, and because of that I try to make sure that my experiences are positive." — Maya Angelou
